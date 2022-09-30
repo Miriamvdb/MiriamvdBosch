@@ -6,6 +6,6 @@
 
 #### How to reach me: 
 
-✉️ linkedin.com/in/miriamvandenbosch/
+✉️ www.linkedin.com/in/miriamvandenbosch/
 
 
